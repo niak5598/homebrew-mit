@@ -1,7 +1,7 @@
 njoing github!!!:)
 Rushikesh kale  
 HomeBrew is Awesome
-Pranav Sarwade
+Pranav
 darshana
 kaustubh tulaskar
 LUCIFER0x7, We all are awesome developer's 
@@ -11,4 +11,4 @@ Shaunak Bhagurkar
 Shaunak Bhaiyya
 pavan Bagade Mitra Mandal
 aman wagh
-19.8556732,75.2521548,22190
+Nia k Pune- 8.5040215,73.6888335
